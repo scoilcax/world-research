@@ -1,3 +1,4 @@
+# Danger Ranks - Countries and Religions
 ### 1. **North Korea**
    - **Dominant Religion:** State Atheism / Juche Ideology
    - **Most Persecuted Religion:** Christianity
